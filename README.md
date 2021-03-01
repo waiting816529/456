@@ -1,0 +1,2 @@
+# waitingresume
+履歷新_工作區域 1.jpg
